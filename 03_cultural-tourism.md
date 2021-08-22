@@ -1,0 +1,121 @@
+'Tour' is a Hebrew word. It derives its meaning from the Hebrew term 'Torah' which means learning, studying and search. 'Torah' is the name given to Jewish law the book that defines Jewish way of life. A tour represents an attempt by the traveller to discover something about a place he visits. A tourist wants to see himself something he has heard about or wants to learn about.
+
+The cultural effect of tourism has been a favourite subject of investigation among anthropologists. When cultures come into contact of any duration each becomes somewhat like the other through a process of borrowing.
+
+Leisure is essentially the time available to individual when discipline of work, sleep and other basic needs have been met. Recreation covers boarding any pursuits to keep up during leisure time. Tourism overlaps with recreation as a way of using leisure and also other activities.
+
+They are in many aspects subject but can be grouped into five broad categories:
+
+1. Those taking place in and around home (television, listening to music/radio, reading, gardening)
+2. Cultural and artistic pursuits (visiting theatres, concerts, art exhibtion)
+3. Activities with high social content (entertaining, eating, visiting inns)
+4. Active pursuits of sports (swimming, golf, etc)
+5. Internal outdoor activities (weekend driving for pleasures, sightseeing)
+
+The first three of these although a major constituent of leisure time is outside the scope. Social and cultural interest are included only in so far as they are component of tourism.
+
+Push Elements
+
+Factors which create internal desire to travel are push elements. Some of the important push elements are as under:
+
+1. Familu visit: visiting relatives, friends, homeland, etc.
+2. Pleasure visit: Travelling for pleasure.
+3. Professional visit: Business travel.
+4. Curiosity: Travel to experience new places, people, cultures, etc.
+5. Spiritual: Travel for spiritual or religious purposes like pilgrimage, etc.
+6. Outdoor activity: Travel to view or participate in sports, etc.
+7. Health: Travel to health resorts, spas, etc.
+8. Image forming: At times 'impressing others' could be a reason enough to travel
+
+Pull Elements
+
+External factors which attract people to a particular place once the desire to travels there are known as pull elements. Some of the major pull elements are enumerated below:
+
+1. Climate
+2. Architecture
+3. History, culture, tradition, etc.
+4. Cuisine
+5. Shopping
+6. Wild life
+7. 'Collect' countries: Some people travel to 'collect' countries just as some collect postage stamps
+8. Love of travel: Some people like travelling rather than their destinations. Cosy air travel, cruise ships, chartered bus trips attract such people to travel.
+
+## Types of tourism
+
+As we have seen, people travel for diverse reasons. Such objectives are sometimes used to designated the so called 'types' of tourism. Although the categorisation appears artificial, it is useful in as far as it reveals various need of man being fulfilled by tourism. Some of the common objectives which prompts tourism are considered here under: 
+
+Recreation: The popular saying 'all work no play makes Jack a dull boy' is true enough to make people wish to get away from their daily routine and 'enjoy life' for a short while at least. Indeed any talk about tourism generally conjures up an image of recreational activities. Such tourists are out to rest and relax in relatively more comfortable and carefree environment. Of course 'rest' is interpreted differently by different people. Thus lazing all day on a beach, sightseeing, participation in cultural activities, visits to wildlife sanctuaries might constitute rest and relaxation for some. The mode of transport and particularly the choice of destination are usually determined by the form of relaxation desired. Such tourists indulge in their pursuits either individually or in small groups of like minded people.
+
+Culture: some people having an abiding interest in diverse cultural patters extant in different regions of the world. They are keen to experience new cultural activities. Their destinations depend upon the location and availability of cultural events like folklore, art, music, fairs, etc. They tend to base themselves as close to the seat of action as possible, be it rural or urban. Where the tourists have to go far to witness the cultural event of their choice they do expect reasonably good, frequent and cheap transport or a well-organised coach service specially designed for the purpose.
+
+History and Archaeology: Interest in other people's history comes natural to many people. As and when they get an opportunity, they are keen to visit heritage locations like forts, museums, temples, mosques, cathedrals, monasteries, ruins, and excavation sites of bygone civilisations, etc. Apart from comfortable lodging arrangements, they look for good guides who can converse well enough at least in English language. Printed, preferably multi-lingual material on the monuments in the form of brochures, handouts, photographs, picture postcards are of significant interest to such tourists.
+
+Education: Quest for knowledge is a common enough characteristics of man. Quite a few people go out in search of knowledge or to learn something specific. Their choice of destination is obviously conditioned by the type of knowledge or skill they desire to attain. For instance, foreigners keen to learn Indian dancing will have to go to Indian. Then depending upon the style of dance, that interest them they will move to specific region of the country. Thus someone who wants to learn Bharatanatyam will go to south and those interested in the Manipuri style will go to east. In general tourist who travel for educational purposes usually prefer to stay in universities and colleges that offer courses of their choice.
+
+Ethnic: Ethnic tourism involves contact with unusual and quaint customs of certain people usually inhabiting remote areas. In India the tribal people have thus been a focus of attention for many people both Indian and foreigner. Apparently most of the tourists have a cursory and casual accounts of the tribal lifestyle have emerged from such visits.
+
+Environment: That pollution is a great hazard is readily accepted now. There is not escape from pollution in ever growing towns and cities. If possible most people would certainly like to getaway, from it even for a short time. The media is responsible to a large extent in creating awareness of the deteriorating environment resulting in various kinds of pollution. The often held belief that environmental tourism is a past time of the elite, rich class, or people of higher income groups who go out seeking pure environment to rest and relax appears to be a trifle sarcastic. The fact of the matter is that both rich and the poor need to get away from city pollution but it is only the former who have the means to do so.
+
+Business: Travel for business constitutes a seizable segment of modern tourism. Most business travellers need individual attention and arrangements. The target destinations are usually large cities offering business related attractions in the form of exhibitions, trade fairs, conferences, meetings, etc. Business tourism tends to be price inelastic and non-seasonal. Due to its highly individualistic character a lot of work has to be put in by the organisers but then it is usually proportionally profitable as well.
+
+Exotic and unusual holiday: As the name implies the exotic and unusual holiday tourism involves distant but sophisticated places. These demand superlative accommodation, cuisine and subsidiary services. Even if the trip is planned as an adventure holiday the tourists will accept what is offered yet they would want it to be in character with their vacation. Apparently it is the neo-rich classes which indulge in the exotic and unusual holiday tourism while the traditionally rich classes tend to be relatively more conservative.
+
+Not withstanding the various options open to indulge in their particular whim or fancy, after all, 'money makes the mare go'. Thus it is possible to correlate certain forms of tourism to specific income groups. The lower income groups along with a section of middle group generally tend to indulge in recreational tourism. Likewise, historical and ethnic tourism is largely supported by higher income brackets. Of course this is not to suggest any water-tight compartments. The present people of all income and educational levels go globe-trotting in pursuit of their particular need and desire.
+
+Pleasure tourism is fast become almost a norm of human behaviour. Indeed in many societies it is considered as a status symbol. Those who do not go abroad for a holiday are taken for failures with some sort of mysterious stigma attached to them. This for quite a few people travel has become a ell nigh compulsive act. Such tourists go in for a mode of transport and accommodation which they think commensurate with the job status or social standing.
+
+### Types of tourists
+
+The basis on which typologies are created and purposes intended have given rise to distinctly different types of tourists. Smith separates tourists in seven categories:
+
+1. Explorer: Very limited numbers looking for discovery and involvement with the local people.
+2. Elite: Special individually tailored visits to exotic places.
+3. Offbeat: The desire to get away from the crowds.
+4. Unusual: The visit with peculiar objectives such as physical danger or isolation.
+5. Incipient mass: A steady flow travelling along or in small organised groups using some shared services.
+6. Mass: The general packaged tour: Market leading to tourist enclaves overseas.
+7. Charter: Mass travel to relaxation destinations which incorporate as many standard western facilities as possible.
+
+Smith's typology based on number tourists and their adaptation to local norms is shown in the following table.
+
+Types of tourist, Number of tourist, Adaptation to local norms
+Explorer, Very limited, Accepts fully
+Elite, Rarely seen, Accepts fully
+Offbeat, Uncommon but seen, Adapts well
+Unusual, Occasional, Accepts somewhat
+Incipient mass, Steady flow, Seeks western amenities
+Mass, Continuous flow, Expects western amenities
+Charter, Massive arrivals, Demands western amenities
+
+(Source: Smith Valene L., ed, Hosts and Guests: The Anthropology of Tourism, 1978 pg.)
+
+The above table can roughly accommodate Cohen's classification due to common stress of the authors on the need for strangers and familiarity -- illustrated by Cohen in terms of their adaptation. However, according to Smith the most crucial factor in determining tourism impact is their numbers. Explorers and elite tourists by virtue of their limited numbers have limited impact on the indigenous culture. With increasing numbers the stressful effects are felt on the economic and socio-cultural systems. This is shown diagrammatically in the figure below.
+
+[Add figure here from Smith Valence L., Tourist impact upon a culture]
+
+## Importance of cultural tourism
+
+"There is no better bridge between people, ideas, ideologies, cultures than travel. It can nurture understanding with a country and between countries." [Powell, Travel Times, Section II, Times of India, 29 Apr 1988.]
+
+In cultural tourism the tourists treat their stay in that destination as a rare opportunity to be away from inhibiting influence of the home discipline away from inhibiting influence of the home discipline and their particular lifestyle at home. They are out to enjoy such short lived freedom to the utmost and shall brook no interference with what they want. Mostly they are short on time and would like their desires, whims, and fancies to be fulfilled to the maximum extent.
+
+Culture is a great motivation for travel. The presence and activities of tourism change the elements of culture. Cultural tourism can be defined as the "Absorption by tourists of features resembling the vanishing style of past societies absorbed through such phenomena as house styles, crafts, farm equipment, and dresses." [Smith, V. (1977), Hosts and Guests, An Anthropology of Tourism, University of Pennsylvania Press, Philadelphia pp. 2-3]
+
+The main elements of culture which attract tourists to a particular destination fall under the following categories:
+
+- Tradition and festival
+- Art and music, music festivals, carnivals, concerts, paintings and sculptures
+- The theory of the region and historical buildings and elements
+- Architecture
+- Handicrafts
+- Religion and religious places
+- Educational systems
+- Dresses
+- Language
+- Gastronomy
+- Technology and type of work of people
+
+Cultural tourism stimulates the revitalisation of traditional art of host and impetus new creations. It provides a market that has helped preserve traditional art forms and keeps the culture alive. It brings awareness in the artists and craftsmen about the skills within them and boasts a self confidence in them for better living.
+
+Due to a perfect cultural tour the tourist gets maximum satisfaction of his tour having enjoyed and felt a lifestyle different than his own. That rejuvenates his tired mind due to busy urban routine. Thus the cultural tourism satisfies the needs of both -- the tourist and the host.
+

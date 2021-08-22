@@ -1,0 +1,68 @@
+## The need for research
+
+"I do not want my house to be walled in on all sides and my windows to be stuffed. I want the cultures of all lands to be blown about my house as freely as possible. But I refuse to be blown off my feet by any." These words by Mahatma Gandhi (Young India, June 1, 1921) reflect the spirit which has moved us to meet in an atmosphere of cooperation and goodwill.
+
+Tourism is not merely an exhibition, but an experience and hence the knowledge. The spice of tourism lies in understanding the people, by going deep into their ways of life. In coming a better appreciation of other people's way of life and institution, tourism my create a goodwill for a country. Tourism is the production of a nation's culture which has been defined as, "The sum total of its achievements, its own expression of its own personality, its way of thinking and acting."
+
+Tourist is a mirror to the country he belongs in as much as they reflect the social conditions prevailing in his motherland. He comes in contact with the people which brings understanding and friendliness.
+
+But in present world tourism seems to have deviated from its goal due to growing commercialism. Due to this lack of tourism, i.e., the spiritual and cultural growth of society and feeling of universality has been restricted and disturbed.
+
+The problem of isolation of tourists and the local masses has reached an acute stage and needs to be dealt efficiently so that the very basic theme behind cultural tourism should not get hampered.
+
+## Present scenario
+
+Today due to the growing commercialism, tourist of present days are forced to just see places rather than enjoying and feel by participating in the way of local area, its culture heritage, history and the people. Every thing seems to be made standardised under the name 'Package tour'.
+
+Following conversation with a Spanish tourist during my study tour to Kutch is quite self-explanatory about the present scenario of cultural tourism.
+
+Q: What has made you visit this interior part of India?
+
+A (A Spanish teacher, 24): I had come across some literature and references regarding the colourful arts and crafts of Kutch. And those were strong enough to create a desire in my mind to visit this place personally. But on my visit to Bhuj, after checking with most of the tourist agencies, I have found that there is not any programme as such through which I can intermingle with these artists or get a feel of their way of working, etc. What most of the do offer are visits to some monuments, sites, museums and handicraft centres. But the basic purpose for which I have come here does not get fulfilled through all this.
+
+Such drawbacks in the present system are prone to kill the natural instinct in the mind of a tourist. A city dweller today wishes to spend his vacation in an atmosphere different than his everyday life and to get involved in the true life style of that region which gives an everlasting impression and maximum satisfaction of his tour.
+
+There are many places of a lot of interest in India. Though developed in the interest of tourism the local man is very rarely benefited. His skills are hardly reached up to the tourist as most of the marketing of the handicrafts is done by a middle man or agency. Here major share of the profit is gained by the middle person.
+
+Also, one of the most likely dangerous thing of these artists tend to divert themselves to some other works, as they see that what their fathers are earning inspite of so much of hardwork. Thus most of these invaluabale art are dying due to lack of patronage. And in today's work these artist can expect thsi patronage and a true appreciation from tourists.
+
+## Measures to improve this scene
+
+### To understand and practice the basic concept of cultural tourism
+
+Due to growing commercialism, tourism of present days are faced just to see the places rather than enjoying and feel by participating in the way of local area, its cultural heritage, history, and the people.
+
+The primary thing that needs to done is to help tourist get a better perspective and knowledge all the while having a good chance to explore the local culture and heritage and also share their joy with others.
+
+It should be a give and take situation, anything that comes as pure pleasure can be demanding and abusive. Tourism has to reevaluate its thrust and its role. Twenty year back nobody was prepared to listen. The attitude was like that: they are bringing money, so let them come. Nobody realised that with money came a whole lot of aspects of culture there were not particularly positive for us. They became performers and demonstrators. As if someone is performing to you and if you are deaf or blind or looking just at a surface he will dry up. It is your response to him it is the art in you that he evokes needs to be interactive.
+
+The concept of holiday's are changing. A tourist has to raise his heart for the native. The enjoyment factor is greater if leisure becomes synonymous to being useful to people and regrouping our energies for a systematic scientific approach. Just being gregarious is not enough. Exhibitory tourism is not healthy for our culture as there is nothing left to replenish it.
+
+### True interpretation of the community and its culture
+
+The inflow of tourists to any region solely depends upon the fact that what region can afford to offer. In this particular field our country has all the aspects sufficiently strong that attracts tourists - foreigner as well as domestic.
+
+The basic need is:
+
+1. To interpret and exhibit these aspects properly, and
+2. To present an attractive tourist image through effective publicity
+
+Some memorable impressions experiences which are different from previous experiences are always left out after a visit to new destination. The attraction of any tourist destination arises to a large extent from the image it presents, the image which is conjived up partly from direct or related experience and partly from information and publicity. An image is in fact the expression of all objectives thoughts with which a person or group judges a particular object or place.
+
+From tourism development of any place the tourist image its project is of utmost importance, because a choice of destination is usually not made objectively but according to image projected by it. The image is often an important factor whenever the comparison arises for selection of destination if prices attractions and facilities are similar. The main task of tourist resort and of national or heritage tourist organisation is to define, promote and advertise the most attractive images possible. Tourist images have to be:
+
+1. As original as possible: tourist facilities cannot add to the uniform of the regions or site concerned but if not added properly. They may spoil the character and look imposed.
+2. Truthful: If original character is retained, the image should be a perfect reflection of it or of the additional sources made available.
+3. Capable of implemented at an appropriate cost to their attractiveness with the financial means of corresponding market to ensure competition with other similar tourist destination.
+
+### Encouraging the local artists and craftsmen
+
+The growing tourism results in better economical gain. By encouraging the arts and crafts of that particular region, the artists get better returns and their art is conveyed to the distances through publicity by the tourists.
+
+## Contributory value of this research
+
+There are many places of a lot of interest in India. Though developed in the interest of tourism, the local man is very rarely benefited. His skills are very rarely reached up to the tourists.
+
+From tourist point of view, the visit expects to spend his leisure moments in an atmosphere different that his everyday life and to get involved in the true life style of that region, which gives an everlasting impression and maximum satisfaction of his tour.
+
+The above needs of both classes i.e. the tourist and the local residents shall be fulfilled by preparing a programmed for a healthy interaction between tourist and local artists. By virtue of this all classes of the society shall be served. This will satisfy the tourist interest as well as encourage the upliftment and welfare of artists and craftspersons.

@@ -1,0 +1,39 @@
+Tourism in India
+
+In the long panorama of India's history, wrote Nehru, "There were men who seemed to know life and understood it, and out of their wisdom, they built a structure that gave India a cultural stability which lasted thousands of years."
+
+Mark Twain in his book, Following the Equator -- A journey around the world, sums-up the enigma that is India and its unlimited potential in terms of its rich heritage and its teeming diversity. 
+
+"The land of dreams and romance, of fabulous wealth and fabulous poverty, of splendour and rags, of palaces and hovels, of famine and pestilence, of genii and giants and Aladdin lamps, of tigers and elephants, the cobra and the jungle, the country of a hundred nations and a hundred tongues, of a thousand religions and two million gods, cradle of the human race, birthplace of human speech, mother of history, grandmother of legend, great-grandmother of tradition, whose yesterdays bear date with the mouldering antiquities of the rest of the nations --- the one sole country under the sun that is endowed with an imperishable interest for alien prince and alien peasant, for lettered and ignorant, wise and fool, rich and poor, bond and free, the one land that all men desire to see, and having seen once, by even a glimpse, would not give that glimpse for the shows of all the rest of the globe combined." 
+
+The cast and beautiful country that is India, its rich and colourful attractions deserves a substantially greater inflow than it currently does.
+
+## Effects of tourism on the economy
+
+India has seen a non-linear growth since its independence in 1947. Non-national visitors grew from 16,829 in 1951 to 16,25,950 in 1997. The per capita tourist expenditure rose from about Rs. 4,400 in 1976 to about Rs. 21,000 in 1996 approximately the same in both packaged and non-packaged categories. As a result, tourism is already an important segment that is making notable contributions to India's economy. Infrastructure improvements to International norms has the potential to earn Rs. 60 Billion annually in the next five years.
+
+The investment in tourism is on a modest scale and the returns are swift. The attractions of a region are its sources of tourism. Investments in accessibility (air, rail, road, and waterways, where practicable) and accommodation (budget and premium) would be key enablers.
+
+The money spent by tourists gets spread over a larger segment of the population, e.g., by way of indirect employment to people that are not directly involved in the travel industry (artisans, guides, transport workers, merchants and vendors of food, entertainment, souvenirs, and service industry), direct benefits to hotels and travel agencies, tax collection to maintain and to serve growth and up-keep of attractions.
+
+A satisfied tourist is an ambassador of goodwill and friendship. The citizen of this country must have the knowledge of the economic benefits of tourism, its potential for rapid development and the need to participate. There are at least five potential benefits to any developing country from tourism, viz.,
+
+Earning potential
+Development of non-industrial regions
+Employment
+Economic development through multiplier effects
+Social benefits
+
+## Social impact of tourism
+
+Social impacts of tourism development refer to changes in the quality of life of the residents of tourists destinations. These impact changes through time in response to structural changes on the tourist industry and the extent and duration of the exposure of the host population to tourist development.
+
+Socio-cultural effects are the outcome of particular kind of social relationship that occurs between tourists and their hosts as a result of their coming into contact. These relationships or encounters are major factors influencing the extent to which understanding or misunderstanding is fastened by the process of tourism.
+
+Social impact of different types of tourists varies accordingly. High budget tourists are package tourists who prefer high tier hotels. In Cohen's terminology, a high budget tourist has a longer duration of stay. They are a source of income mainly to small entrepreneurs. They sit chatting on the wayside 'Dhabas', hire (motor)cycles for sightseeing and taste authentic food. Their interaction is maximum with the community. They photograph women drawing water from wells, go to nearby excursion spots with local guides, and either entertain the men who catch their fancy or be entertained by them. They try to get involved with or live the life of a common man. Tourists in turn are affected by the experience. They carry back home with them the habits and a new outlook on life.
+
+The guest's appreciation makes the host become self-aware of their skills, redrawing attention and the importance of one's culture, self-confidence and brings about a sense of pride. Recognition is reinforcing, and it helps the host towards continuous improvement in areas the host feels there is room for improvement, be it knowledge, literacy and education, etc.
+
+## Ill effects of tourism
+
+When destinations of attractions grow rapidly, due to their popularity, their resources become overburdened under the strain of demand. It is necessary to realise this early and allocate resources to manage and offset the demand. Formulating an effective national tourism policy, followed by a support structure to allow destinations to thrive is critical in ensuring that the destinations continue to retain their attractiveness and popularity. On the downside, if this is not addressed in time, then the word of mouth on the ground realities can spread fast in this age of the internet, and can dissuade future potential visitors from visiting, all of which can thrust thriving attractions on a downward spiral, which would be highly undesirable.
