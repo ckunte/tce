@@ -1,0 +1,9 @@
+.DS_Store
+ref
+md
+*.out
+*.lo*
+*.aux
+*.pdf
+*.?*oc
+img/01-desertcamp*
