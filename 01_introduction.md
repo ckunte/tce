@@ -1,4 +1,4 @@
-Strong desires drive humans. Among these, the one to see places, understand one another, and experience culture is high on the list. Tourism enables this.
+Strong desires drive humans. Among these, the one to see places, understand one another, and experience culture is high on the list. Tourism enables this. In fact, cultural heritage is the essence of tourism at many destinations the world over. Every year, millions of people travel to Rome to imagine gladiators fighting in the Colosseum, to Beijing to feel the Great Wall, walk the way of Camino de Santiago to experience the divine, or to Agra to see expressed love in the Taj Mahal. Although world heritage sites draw tourists both domestic and international alike in large numbers, most of world's historic sites are not internationally known and only relatively few ever attract international tourists, except perhaps in combination with other attractions. For every world renowned cultural attraction, there are hundreds of other --- not famous --- sites that are appreciated only locally.
 
 ## How tourism flourishes
 
