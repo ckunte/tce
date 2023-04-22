@@ -1,0 +1,17 @@
+\begin{tikzpicture}
+\begin{axis}[
+    symbolic x coords={1993,1994,1995,1996},
+    xtick=data,
+    xlabel=Year,
+    xticklabel style={font=\scriptsize}, 
+    ylabel=Visitors (in thousands),
+    yticklabel style={font=\scriptsize}
+    ]
+    \addplot[ybar,fill=blue] coordinates {
+        (1993,1735)
+        (1994,1949)
+        (1995,2124)
+        (1996,2288)
+    };
+\end{axis}
+\end{tikzpicture}
