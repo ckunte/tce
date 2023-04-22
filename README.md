@@ -4,4 +4,4 @@ A dissertation submitted by Sneha Bhavsar in 1998 towards partial fulfilment of 
 
 Archiving is the main purpose of this repository. Photographs of the physical models were lost, and is regretted. The thesis is available as a PDF document from [Releases][r] section.
 
-[r]: https://github.com/ckunte/tch/releases
+[r]: https://github.com/ckunte/tce/releases
