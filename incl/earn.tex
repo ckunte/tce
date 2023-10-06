@@ -1,0 +1,28 @@
+\begin{tikzpicture}
+  \begin{axis}[
+    no markers,
+    xlabel=Year,
+    xticklabel style={font=\scriptsize}, 
+    ylabel=Earnings (Rs in billions),
+    yticklabel style={font=\scriptsize}
+    ]
+    \addplot table[x=year,y=earnings] {
+      year  earnings
+      1982  10.639
+      1983  11.306
+      1984  10.753
+      1985   8.980
+      1986  11.891
+      1987  18.200
+      1988  19.708
+      1989  21.080
+      1990  24.560
+      1991  29.000
+      1992  32.720
+      1993  35.449
+      1994  40.025
+      1995  43.317
+      1996  46.519
+    };
+  \end{axis}
+\end{tikzpicture}
